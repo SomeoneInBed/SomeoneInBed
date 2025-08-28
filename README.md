@@ -15,7 +15,7 @@ I took a recent break to work on my portfolio website.
 **Fun Facts** 
 * I play piano
 * I love working out
-* I am always sleepy
+
 
 
 <br>Looking for any opportunities that may present themselves. I need work. 
